@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ObinnaNdbs
 - 👀 I’m interested in soccer
-- 🌱 I’m currently learning Mechanical Engineering
+- 🌱 I’m currently learning Mechanical, Computer and Robotics/Automation Engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me obinnandbs@gmail.com
 - 😄 Pronouns: ...
